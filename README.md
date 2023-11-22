@@ -1,4 +1,4 @@
-👋 **Students** based in **Thailand** with **10 years of experience** in the software.
+👋 **Student and Developer** based in **Thailand** with **10 years of experience** in the software.
 
 ---
 
